@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **sumedhdawadi101@gmail.com**
 
-- ⚡ Fun fact **I love to Guitar  often.**
+- ⚡ Fun fact **I love to play Guitar  often.**
 
 ## 🚀 Languages and Skills :
 
